@@ -1,3 +1,3 @@
 # tes
 Justru
-jus
+just
