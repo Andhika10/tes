@@ -1,4 +1,4 @@
 # tes
 Justru
 justru
-jur
+juru
