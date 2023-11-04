@@ -2,4 +2,4 @@
 Justru
 justru
 jurus
-ju
+ji
