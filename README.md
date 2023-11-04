@@ -2,4 +2,3 @@
 Justru
 justru
 jurus
-ji
