@@ -1,5 +1,1 @@
-# tes
-Justru
-justru
-jurus
-satu
+p
