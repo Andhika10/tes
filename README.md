@@ -1,1 +1,1 @@
-padamu neger
+padamu negeri
