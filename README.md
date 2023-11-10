@@ -1,1 +1,1 @@
-padamu neg
+padamu nege
