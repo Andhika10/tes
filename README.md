@@ -1,2 +1,2 @@
-padamu negeri ka
+padamu negeri kam
 <br/>
